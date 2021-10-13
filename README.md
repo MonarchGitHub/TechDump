@@ -1,3 +1,3 @@
 # TechDump
 
-<strong>Prettayy stuff coming super duper soon</strong>
+<strong>Totally not a virus</strong>
